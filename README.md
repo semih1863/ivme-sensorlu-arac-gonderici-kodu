@@ -1,0 +1,1 @@
+# ivme-sensorlu-arac-gonderici-kodu
